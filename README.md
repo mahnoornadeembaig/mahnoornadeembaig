@@ -1,4 +1,4 @@
-# MahnoornadeemBaig
+# MahnoorNadeemBaig
 My GitHub Profile
 # ✨ Meet Miss Mahnoor
 
